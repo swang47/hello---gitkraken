@@ -2,4 +2,10 @@ hello - gitkraken
 
 What a beautiful weather!
 
-but will rain tomorrow T.T
+I love the sunshine.
+
+but it's too hot.
+
+why different
+
+what should i do next?
